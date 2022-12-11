@@ -1,6 +1,7 @@
 ## Novik Dmytro
 ### Contact information:
 E-mail: rebelofblack1337@gmail.com
+
 Discord: Castile#0552
 ### About me:
 ### Skills and Proficiency:
